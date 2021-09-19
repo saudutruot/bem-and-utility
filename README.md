@@ -1,1 +1,0 @@
-# saudutruot.github.id
